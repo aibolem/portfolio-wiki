@@ -16,3 +16,5 @@ otherwise ORACLE restricting me?! Lechalicht ohne licht!
 
 
 https://aibolem.github.io/portfolio/portfolio-details.html
+
+![image](https://github.com/user-attachments/assets/08a6aa92-431e-4342-a2d9-378bdc954eb6)
